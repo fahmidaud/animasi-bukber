@@ -3,5 +3,5 @@
 Tonton via, 
 
 * YouTube: https://www.youtube.com/watch?v=E_hlwP1U-EI
-* Instagram: Comming Soon
-* TikTok: Comming Soon
+* Instagram: Coming Soon
+* TikTok: Coming Soon
