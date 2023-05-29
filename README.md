@@ -1,4 +1,7 @@
 # animasi-bukber
 
 Tonton via, 
-https://www.youtube.com/watch?v=E_hlwP1U-EI
+
+YouTube: https://www.youtube.com/watch?v=E_hlwP1U-EI
+Instagram: Comming Soon
+TikTok: Comming Soon
